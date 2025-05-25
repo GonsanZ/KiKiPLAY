@@ -1,4 +1,4 @@
-KiKiPLAY♡ ¡Disfruta de música de alta calidad en Spotify, YouTube y SoundCloud. Ahora escucha música en Discord gratis sin anuncios con amigos!. Pruébalo ahora 💜
+[b]KiKiPLAY♡[/b] ¡Disfruta de música de alta calidad en Spotify, YouTube y SoundCloud. Ahora escucha música en Discord gratis sin anuncios con amigos!. Pruébalo ahora 💜
 
 - Prefix: k!
   
